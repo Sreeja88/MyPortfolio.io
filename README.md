@@ -1,1 +1,1 @@
-Please download and extract the provided zip folder "sreeja.zip" to access my portfolio. ^_^
+Please download and extract this zip folder to access my portfolio. ^_^
